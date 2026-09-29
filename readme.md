@@ -1,4 +1,4 @@
-# Haeghbsjkgbkjggit push
+# Hola
 Me llamo Diego,soy de España y estudio el grado superior de ASIR. Me encuentro en el segundo curso del mismo.  
 He trabajado en trabajos temporales en verano en un supermercado Lupa y en una foodtruck, y durante el curso me dedico a estudiar.  
 # Skills
